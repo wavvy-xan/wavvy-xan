@@ -1,5 +1,3 @@
-## Hi there 👋
-
 <h2 align="center">Hi, i'm wavvy 👋🏽</h2>
 
 ###
