@@ -2,7 +2,7 @@
 
 ###
 
-<h6 align="center">I'm a beginner programmer on the FiveM platform, and from time to time I will publish my works that I made.</h6>
+<h6 align="center">idk lol k ogar</h6>
 
 ###
 
