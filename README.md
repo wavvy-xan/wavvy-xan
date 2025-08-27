@@ -2,7 +2,7 @@
 
 ###
 
-<h6 align="center">idk lol k ogar</h6>
+<h6 align="center">a huj to wie</h6>
 
 ###
 
